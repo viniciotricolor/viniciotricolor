@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
-- [How to prevent GitHub from suspending your cronjob based triggers](https://dev.to/gautamkrishnar/how-to-prevent-github-from-suspending-your-cronjob-based-triggers-knf)
-- [How I built one of the top 20 most used Github Actions](https://www.gautamkrishnar.com/how-i-built-one-of-the-top-20-most-used-github-actions/)
-- [Show your latest dev.to posts automatically on your GitHub profile readme](https://dev.to/gautamkrishnar/show-your-latest-dev-to-posts-automatically-in-your-github-profile-readme-3nk8)
-- [God Mode in browsers: document.designMode = &quot;on&quot;](https://dev.to/gautamkrishnar/god-mode-in-browsers-document-designmode-on-2pmo)
-- [Skipping the Chrome &quot;Your connection is not private&quot; warning](https://dev.to/gautamkrishnar/quickbits-1-skipping-the-chrome-your-connection-is-not-private-warning-4kp1)
+- [Paying in HBD at Hola Supermarket [ESP][ENG]](https://peakd.com/hive-11800/@soyanafuentes/paying-in-hbd-at-hola-supermarket-esp-eng)
+- [🚀 Como ganhei quase $400 reais jogando Splinterlands na última temporada 💰 Tracking my result for season 115+ +brawls battle cycles 165+166+167](https://peakd.com/leofinance/@viniciotricolor/como-ganhei-quase-dollar400-reais-jogando-splinterlands-na-ultima-temporada-tracking-my-result-for-season-115-brawls-battle-cy)
+- [🔧 How to Make URI Work in Obsidian Appimage: A Practical Guide for Linux Users 💻 EN-PTBR](https://peakd.com/hivebr/@viniciotricolor/how-to-make-uri-work-in-obsidian-appimage-a-practical-guide-for-linux-users-en-ptbr)
+- [Precisamos falar sobre I.A. no Hive, meu irmão!!!! Fora dela também! 👀](https://peakd.com/hivebr/@viniciotricolor/precisamos-falar-sobre-ia-no-hive-meu-irmao-fora-dela-tambem)
+- [The horrendous failure of curating Quality Content](https://peakd.com/ocd/@anomadsoul/the-horrendous-failure-of-curating-quality-content)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
