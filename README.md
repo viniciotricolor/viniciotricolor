@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [farlight84 de volta a linux quase 1 mês depois](https://peakd.com/hive-169926/@viniciotricolor/3b1db89b53b3841b8231af6c30e48554-vimmtv)
 - [splinterlands reaprendendo a jogar manual haha  dia 01 ao som de  mtv/brasil 2020](https://peakd.com/hive-169926/@viniciotricolor/dcc1c1c9ca91962a508164b2db98054c-vimmtv)
 - [Open question to Valueplan fund](https://peakd.com/dhf/@doze/open-question-to-valueplan-fund)
 - [Paying in HBD at Hola Supermarket [ESP][ENG]](https://peakd.com/hive-11800/@soyanafuentes/paying-in-hbd-at-hola-supermarket-esp-eng)
 - [🚀 Como ganhei quase $400 reais jogando Splinterlands na última temporada 💰 Tracking my result for season 115+ +brawls battle cycles 165+166+167](https://peakd.com/leofinance/@viniciotricolor/como-ganhei-quase-dollar400-reais-jogando-splinterlands-na-ultima-temporada-tracking-my-result-for-season-115-brawls-battle-cy)
-- [🔧 How to Make URI Work in Obsidian Appimage: A Practical Guide for Linux Users 💻 EN-PTBR](https://peakd.com/hivebr/@viniciotricolor/how-to-make-uri-work-in-obsidian-appimage-a-practical-guide-for-linux-users-en-ptbr)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
