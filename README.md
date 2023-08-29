@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Skatehive Fundraiser : Let&#39;s Help @TomRohrer with his &#39;Stem Cell Therapy&#39; Expenses](https://peakd.com/hive-173115/@skatehive/skatehive-fundraiser--lets-help-tomrohrer-with-his-stem-cell-therapy-expenses)
 - [Cool sailboat 😆 ⛵](https://peakd.com/stemgeeks/@trumpman/cool-sailboat)
 - [Villa de Cura representará a Venezuela en torneo internacional de Fútbol en Brasil  esp /eng by @gaborockstar](https://peakd.com/hive-189157/@gaborockstar/villa-de-cura-representara-a-venezuela-en-torneo-internacional-de-futbol-en-brasil-esp-eng-by-gaborockstar)
 - [😤 Chega de BOT! Por que parei de usar  bots no Splinterlands de vez 🛑+Tracking my result for season 116+ +brawls battle cycles 168+169+170](https://peakd.com/hive-13323/@viniciotricolor/chega-de-bot-por-que)
 - [ATS ao som  de lost midia encontradas no meu galaxy pocket, balança um pouco mas faz parte](https://peakd.com/hive-169926/@viniciotricolor/0e3a61de01f6ddae06a483581c9b1f2f-vimmtv)
-- [American Truck Simulator: Enchanted Edition](https://peakd.com/hive-169926/@viniciotricolor/1127e342022e686d0cd0330d5f760b59-vimmtv)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
