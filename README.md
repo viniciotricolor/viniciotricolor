@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Kobold Bruiser Simpsons Style](https://peakd.com/hive-158694/@lorentm/3bh7bw-kobold-bruiser-simpsons-style)
 - [Change the keys!](https://peakd.com/hive-174122/@ecoinstant/change-the-keys)
 - [Skatehive Fundraiser : Let&#39;s Help @TomRohrer with his &#39;Stem Cell Therapy&#39; Expenses](https://peakd.com/hive-173115/@skatehive/skatehive-fundraiser--lets-help-tomrohrer-with-his-stem-cell-therapy-expenses)
 - [Cool sailboat 😆 ⛵](https://peakd.com/stemgeeks/@trumpman/cool-sailboat)
 - [Villa de Cura representará a Venezuela en torneo internacional de Fútbol en Brasil  esp /eng by @gaborockstar](https://peakd.com/hive-189157/@gaborockstar/villa-de-cura-representara-a-venezuela-en-torneo-internacional-de-futbol-en-brasil-esp-eng-by-gaborockstar)
-- [😤 Chega de BOT! Por que parei de usar  bots no Splinterlands de vez 🛑+Tracking my result for season 116+ +brawls battle cycles 168+169+170](https://peakd.com/hive-13323/@viniciotricolor/chega-de-bot-por-que)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
