@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [#ViernesDeEscritorio The Ubuntu and Nvidia drive have been successfully updated.](https://peakd.com/hive-116823/@viniciotricolor/viernesdeescritorio-the-ubuntu-and-nvidia)
 - [Tracking my result for season 117+ battle cycle brazil guild 171-172-173](https://peakd.com/hive-13323/@viniciotricolor/tracking-my-result-for-season)
 - [Kobold Bruiser Simpsons Style](https://peakd.com/hive-158694/@lorentm/3bh7bw-kobold-bruiser-simpsons-style)
 - [Change the keys!](https://peakd.com/hive-174122/@ecoinstant/change-the-keys)
 - [Skatehive Fundraiser : Let&#39;s Help @TomRohrer with his &#39;Stem Cell Therapy&#39; Expenses](https://peakd.com/hive-173115/@skatehive/skatehive-fundraiser--lets-help-tomrohrer-with-his-stem-cell-therapy-expenses)
-- [Cool sailboat 😆 ⛵](https://peakd.com/stemgeeks/@trumpman/cool-sailboat)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
