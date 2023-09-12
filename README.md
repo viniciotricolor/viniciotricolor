@@ -11,9 +11,9 @@
 <!-- BLOG-POST-LIST:START -->
 - [Promote Hive | 5,000 HBD Prize Pool!](https://peakd.com/gamification/@leogrowth/promote-hive-or-5000-hbd-prize-pool)
 - [#ViernesDeEscritorio The Ubuntu and Nvidia drive have been successfully updated.](https://peakd.com/hive-116823/@viniciotricolor/viernesdeescritorio-the-ubuntu-and-nvidia)
+- [My first post in HIVE - Meet me &lt;3 !!! &quot;Text in #ENG &amp; #PT-br&quot;](https://peakd.com/hive/@jehfinho/my-first-post-in-hive-meet-me-3--text-in-eng-and-pt-br)
 - [Tracking my result for season 117+ battle cycle brazil guild 171-172-173](https://peakd.com/hive-13323/@viniciotricolor/tracking-my-result-for-season)
 - [Kobold Bruiser Simpsons Style](https://peakd.com/hive-158694/@lorentm/3bh7bw-kobold-bruiser-simpsons-style)
-- [Change the keys!](https://peakd.com/hive-174122/@ecoinstant/change-the-keys)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
