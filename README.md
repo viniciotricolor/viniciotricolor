@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [AI TOOLS INTEGRATED INTO PEAKD.COM](https://peakd.com/hive-163399/@peakd/ai-tools-integrated-into-peakdcom)
 - [Coming at you from LEO: Zealy campaign/Monster raffle tickets on sale soon/Reblog lottery](https://peakd.com/hive-167922/@bitcoinman/coming-at-you-from-leo-zealy-campaignmonster-raffle-tickets-on-sale-soonreblog-lottery-)
 - [Join Me in Spreading Hive to New Users Zealy campaign  :&rpar;](https://peakd.com/hive-167922/@viniciotricolor/join-me-in-spreading-hive-to-new-users-zealy-campaign-)
 - [Promote Hive | 5,000 HBD Prize Pool!](https://peakd.com/gamification/@leogrowth/promote-hive-or-5000-hbd-prize-pool)
 - [#ViernesDeEscritorio The Ubuntu and Nvidia drive have been successfully updated.](https://peakd.com/hive-116823/@viniciotricolor/viernesdeescritorio-the-ubuntu-and-nvidia)
-- [My first post in HIVE - Meet me &lt;3 !!! &quot;Text in #ENG &amp; #PT-br&quot;](https://peakd.com/hive/@jehfinho/my-first-post-in-hive-meet-me-3--text-in-eng-and-pt-br)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
