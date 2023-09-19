@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Como obter estatísticas importantes de sua conta Splinterlands v2.0](https://peakd.com/hive-13323/@viniciotricolor/como-obter-estatisticas-importantes-de)
 - [Promo Pack HBD accepted](https://peakd.com/promo/@ayummi/promo-pack-hbd-accepted)
 - [Skatehive App Updates](https://peakd.com/hive-173115/@xvlad/skatehive-app-updates)
 - [AI TOOLS INTEGRATED INTO PEAKD.COM](https://peakd.com/hive-163399/@peakd/ai-tools-integrated-into-peakdcom)
 - [Coming at you from LEO: Zealy campaign/Monster raffle tickets on sale soon/Reblog lottery](https://peakd.com/hive-167922/@bitcoinman/coming-at-you-from-leo-zealy-campaignmonster-raffle-tickets-on-sale-soonreblog-lottery-)
-- [Join Me in Spreading Hive to New Users Zealy campaign  :&rpar;](https://peakd.com/hive-167922/@viniciotricolor/join-me-in-spreading-hive-to-new-users-zealy-campaign-)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
