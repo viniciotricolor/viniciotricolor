@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [tracking my result for season 118+battle cycle brazil guild 174-175-176-177](https://peakd.com/hive-13323/@viniciotricolor/tracking-my-result-for-season-118battle-cycle-brazil-guild-174-175-176-177)
 - [Hivefy: The Telegram bot for The Hive Blockchain [Announcement]](https://peakd.com/hive-139531/@alejos7ven/hivefy-the-telegram-bot-for-the-hive-blockchain-announcement)
 - [Party Animals Tiro, porrada, bomba e bichinhos fofinhos.🔫💥🥊💣🐾😊](https://peakd.com/hive-140217/@viniciotricolor/party-animals-tiro-porrada-bomba-e-bichinhos-fofinhos)
 - [Hive Open Mic #180 - Pirates Of The Caribbean Theme Song &lpar;piano cover by @sanjalica&rpar;](https://peakd.com/hive-105786/@sanjalica/kureqsso)
 - [Como obter estatísticas importantes de sua conta Splinterlands v2.0](https://peakd.com/hive-13323/@viniciotricolor/como-obter-estatisticas-importantes-de)
-- [Promo Pack HBD accepted](https://peakd.com/promo/@ayummi/promo-pack-hbd-accepted)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
