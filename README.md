@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Comprando un Café con HBD 3short Video](https://peakd.com/hive-106258/@gr33nm4ster/wavxtwgwpo)
 - [Splinterlands Live Streamed Tournament on Twitch!](https://peakd.com/leofinance/@clove71/splinterlands-live-streamed-tournament-on-twitch)
 - [tracking my result for season 118+battle cycle brazil guild 174-175-176-177](https://peakd.com/hive-13323/@viniciotricolor/tracking-my-result-for-season-118battle-cycle-brazil-guild-174-175-176-177)
 - [Hivefy: The Telegram bot for The Hive Blockchain [Announcement]](https://peakd.com/hive-139531/@alejos7ven/hivefy-the-telegram-bot-for-the-hive-blockchain-announcement)
 - [Party Animals Tiro, porrada, bomba e bichinhos fofinhos.🔫💥🥊💣🐾😊](https://peakd.com/hive-140217/@viniciotricolor/party-animals-tiro-porrada-bomba-e-bichinhos-fofinhos)
-- [Hive Open Mic #180 - Pirates Of The Caribbean Theme Song &lpar;piano cover by @sanjalica&rpar;](https://peakd.com/hive-105786/@sanjalica/kureqsso)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
