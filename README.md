@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [🔊 Hive Open Mic 182 - Vem pra HiveBlockchain! 🔊🎙](https://peakd.com/hive-105786/@boeltermc/xjbdcemu)
+- [Games to play as a couple🖤Jogos para jogar de 2](https://peakd.com/hive-140217/@naoebemumcanal/games-to-play-as-a-couplejogos-para-jogar-de-2)
 - [Comprando un Café con HBD 3short Video](https://peakd.com/hive-106258/@gr33nm4ster/wavxtwgwpo)
 - [Splinterlands Live Streamed Tournament on Twitch!](https://peakd.com/leofinance/@clove71/splinterlands-live-streamed-tournament-on-twitch)
 - [tracking my result for season 118+battle cycle brazil guild 174-175-176-177](https://peakd.com/hive-13323/@viniciotricolor/tracking-my-result-for-season-118battle-cycle-brazil-guild-174-175-176-177)
-- [Hivefy: The Telegram bot for The Hive Blockchain [Announcement]](https://peakd.com/hive-139531/@alejos7ven/hivefy-the-telegram-bot-for-the-hive-blockchain-announcement)
-- [Party Animals Tiro, porrada, bomba e bichinhos fofinhos.🔫💥🥊💣🐾😊](https://peakd.com/hive-140217/@viniciotricolor/party-animals-tiro-porrada-bomba-e-bichinhos-fofinhos)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
