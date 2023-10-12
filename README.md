@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Tracking my result for season 119+battle cycle brazil guild 178-179-1880](https://peakd.com/hive-13323/@viniciotricolor/season119)
 - [🔊 Hive Open Mic 182 - Vem pra HiveBlockchain! 🔊🎙](https://peakd.com/hive-105786/@boeltermc/xjbdcemu)
 - [Games to play as a couple🖤Jogos para jogar de 2](https://peakd.com/hive-140217/@naoebemumcanal/games-to-play-as-a-couplejogos-para-jogar-de-2)
 - [Comprando un Café con HBD 3short Video](https://peakd.com/hive-106258/@gr33nm4ster/wavxtwgwpo)
 - [Splinterlands Live Streamed Tournament on Twitch!](https://peakd.com/leofinance/@clove71/splinterlands-live-streamed-tournament-on-twitch)
-- [tracking my result for season 118+battle cycle brazil guild 174-175-176-177](https://peakd.com/hive-13323/@viniciotricolor/tracking-my-result-for-season-118battle-cycle-brazil-guild-174-175-176-177)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
