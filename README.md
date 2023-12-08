@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [welcome back vimm.tv](https://peakd.com/hive-169926/@viniciotricolor/fccbf1ec7317a46b4ae8d402bde32b33-vimmtv)
 - [Challenge Accepted](https://peakd.com/hivebr/@jaopalas/challenge-accepted)
 - [Tracking my result for season 120+battle cycle brazil guild 181-182-183](https://peakd.com/hive-13323/@viniciotricolor/tracking-my-result-for-season-120battle-cycle-brazil-guild-181-182-183)
 - [Update: What happened, and what&#39;s coming](https://peakd.com/hive-169926/@vimm/update-what-happened-and-whats-coming)
 - [Tracking my result for season 119+battle cycle brazil guild 178-179-1880](https://peakd.com/hive-13323/@viniciotricolor/season119)
-- [🔊 Hive Open Mic 182 - Vem pra HiveBlockchain! 🔊🎙](https://peakd.com/hive-105786/@boeltermc/xjbdcemu)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
