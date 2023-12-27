@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Splinterlands brawl](https://peakd.com/hive-169926/@viniciotricolor/cad2fd1839fb0a5174877cccede56f52-vimmtv)
 - [Splinterlands brawl](https://peakd.com/hive-169926/@viniciotricolor/cfdf5890939dc242d084466213f6c593-vimmtv)
 - [Performing 5 crypto songs at the Bueno Palooza Festival in Buenoverse 🎼](https://peakd.com/hive-193816/@boeltermc/dajtbefi)
 - [Splinterlands brawl](https://peakd.com/hive-169926/@viniciotricolor/7f125950a5ff56767275a0476a78d70a-vimmtv)
 - [The bug hunter call of the wild](https://peakd.com/hive-169926/@viniciotricolor/f6bb7ac6b9d04a460a45802b0c60207d-vimmtv)
-- [welcome back vimm.tv](https://peakd.com/hive-169926/@viniciotricolor/fccbf1ec7317a46b4ae8d402bde32b33-vimmtv)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
