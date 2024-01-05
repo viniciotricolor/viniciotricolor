@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Projeto: 1 milhão em 365 dias- DIa 5 acho que estou atrasado mais pobre do que nunca](https://peakd.com/hive-169926/@viniciotricolor/374c18ad8ee096d055646a0ed1827c93-vimmtv)
 - [Happy New Year!  hive Gaming  Community](https://peakd.com/hive-185676/@viniciotricolor/happy-new-year-hive-gaming-community)
 - [Splinterlands brawl](https://peakd.com/hive-169926/@viniciotricolor/372eaa85a567beb28d0909b5b28d5303-vimmtv)
 - [Splinterlands brawl](https://peakd.com/hive-169926/@viniciotricolor/cad2fd1839fb0a5174877cccede56f52-vimmtv)
 - [Splinterlands brawl](https://peakd.com/hive-169926/@viniciotricolor/cfdf5890939dc242d084466213f6c593-vimmtv)
-- [Performing 5 crypto songs at the Bueno Palooza Festival in Buenoverse 🎼](https://peakd.com/hive-193816/@boeltermc/dajtbefi)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
