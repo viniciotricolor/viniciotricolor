@@ -10,10 +10,10 @@
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
 - [Furious Chicken in 3D //  Quilling Technique // Splinterlands Art Contest 275 [Eng-Esp]](https://peakd.com/hive-130560/@dayadam/furious-chicken-in-3d-quilling)
+- [My Twitch Channel für SimRacing Livestreams](https://peakd.com/hive-128844/@pogoberlin/my-twitch-channel-fur-simracing-livestreams)
 - [Splinterlands Brawl Projeto: 1 milhão em 365 dias- DIa 6acho que estou atrasado mais pobre do que nunca](https://peakd.com/hive-169926/@viniciotricolor/e6ccda639e5bd42fbdb16e8d296415f6-vimmtv)
 - [Projeto: 1 milhão em 365 dias- DIa 5 acho que estou atrasado mais pobre do que nunca](https://peakd.com/hive-169926/@viniciotricolor/374c18ad8ee096d055646a0ed1827c93-vimmtv)
 - [Happy New Year!  hive Gaming  Community](https://peakd.com/hive-185676/@viniciotricolor/happy-new-year-hive-gaming-community)
-- [Splinterlands brawl](https://peakd.com/hive-169926/@viniciotricolor/372eaa85a567beb28d0909b5b28d5303-vimmtv)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
