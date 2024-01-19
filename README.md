@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Vem ver meu pal, palwolrd](https://peakd.com/hive-169926/@viniciotricolor/122df0b49d1ebc7621d0ab26d497cb04-vimmtv)
 - [dia de farm em fazendinha](https://peakd.com/hive-169926/@viniciotricolor/681b419086fbf557b025b18ecf905269-vimmtv)
 - [Splinterlands Brawl + joguinho de fazenda de gosto duvidoso](https://peakd.com/hive-169926/@viniciotricolor/b0020fb2ef0725b8faefcc0c0fac74da-vimmtv)
 - [Furious Chicken in 3D //  Quilling Technique // Splinterlands Art Contest 275 [Eng-Esp]](https://peakd.com/hive-130560/@dayadam/furious-chicken-in-3d-quilling)
 - [My Twitch Channel für SimRacing Livestreams](https://peakd.com/hive-128844/@pogoberlin/my-twitch-channel-fur-simracing-livestreams)
-- [Splinterlands Brawl Projeto: 1 milhão em 365 dias- DIa 6acho que estou atrasado mais pobre do que nunca](https://peakd.com/hive-169926/@viniciotricolor/e6ccda639e5bd42fbdb16e8d296415f6-vimmtv)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
