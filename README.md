@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Snowrunner levando tora atrás  &lpar;xcloud net/claro 350 megas&rpar;](https://peakd.com/hive-169926/@viniciotricolor/4cc379dfd76571074d6aafa579184a10-vimmtv)
 - [Jogando joguinhos crypto de gosto duvidosos](https://peakd.com/hive-169926/@viniciotricolor/801472eea44e1e36529b7f679e3cbd00-vimmtv)
 - [microsoft flight simulator](https://peakd.com/hive-169926/@viniciotricolor/2434cd8cbe963ad76bd31f68a5398d34-vimmtv)
 - [PowerWash Simulator ft: https://www.twitch.tv/rodrigo034](https://peakd.com/hive-169926/@viniciotricolor/b700e7c433644e1c3446f12fe525eada-vimmtv)
 - [PowerWash Simulator+ splinterlands brawl](https://peakd.com/hive-169926/@viniciotricolor/04903b957a08134336b96fcb73e25492-vimmtv)
-- [sextou e esfriou então bora de splinterlands brawl](https://peakd.com/hive-169926/@viniciotricolor/abd2f891a385de7eab39e4ba573366f8-vimmtv)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
