@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Dead insland 2+ splinterlands brawl + joguinhos aleatórios](https://peakd.com/hive-169926/@viniciotricolor/01c65081ee2d2479aeeb202cbf7d6572-vimmtv)
 - [blood strike conhecendo o game](https://peakd.com/hive-169926/@viniciotricolor/ca8c5a657042f69a1b8c5ccc4ac58b18-vimmtv)
 - [Snowrunner levando tora atrás  &lpar;xcloud net/claro 350 megas&rpar;](https://peakd.com/hive-169926/@viniciotricolor/4cc379dfd76571074d6aafa579184a10-vimmtv)
 - [Jogando joguinhos crypto de gosto duvidosos](https://peakd.com/hive-169926/@viniciotricolor/801472eea44e1e36529b7f679e3cbd00-vimmtv)
 - [microsoft flight simulator](https://peakd.com/hive-169926/@viniciotricolor/2434cd8cbe963ad76bd31f68a5398d34-vimmtv)
-- [PowerWash Simulator ft: https://www.twitch.tv/rodrigo034](https://peakd.com/hive-169926/@viniciotricolor/b700e7c433644e1c3446f12fe525eada-vimmtv)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
