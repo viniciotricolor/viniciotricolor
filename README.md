@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [blood strike](https://peakd.com/hive-169926/@viniciotricolor/ccdc582b62be57522a74916a0d74adf1-vimmtv)
 - [Tracking my result for season 129 : viniciotricolor, vinicio.spt, splinterlandspro, viniciohleo](https://peakd.com/hive-13323/@viniciotricolor/tracking-my-result-for-season-129--viniciotricolor-viniciospt-splinterlandspro-viniciohleo)
 - [Splinterlands brawl ao som de  DVD Clipes Animados Vol.4](https://peakd.com/hive-169926/@viniciotricolor/aeecf71d41f652fb8f59393cefecfb44-vimmtv)
 - [Axie champions subindo rank com mecha apelão 5 estrela](https://peakd.com/hive-169926/@viniciotricolor/cccbb6edcc90c1fddd25ed07a8966c4d-vimmtv)
 - [Dead insland 2+ splinterlands brawl + joguinhos aleatórios](https://peakd.com/hive-169926/@viniciotricolor/01c65081ee2d2479aeeb202cbf7d6572-vimmtv)
-- [blood strike conhecendo o game](https://peakd.com/hive-169926/@viniciotricolor/ca8c5a657042f69a1b8c5ccc4ac58b18-vimmtv)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
