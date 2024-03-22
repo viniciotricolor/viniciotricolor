@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Deixando Nada de Fora: Uma Análise Completa da Season 130 Splinterlands](https://peakd.com/hive-13323/@viniciotricolor/deixando-nada-de-fora-uma-analise-completa-da-season-130-splinterlands)
 - [Top 12 melhor sniper do game rumo ao top 10](https://peakd.com/hive-169926/@viniciotricolor/af14d87c1f0d0f4e1d55801d1391609d-vimmtv)
 - [Jogo do demônio.exe](https://peakd.com/hive-169926/@viniciotricolor/aa724811c6112c7241870063f2c82806-vimmtv)
 - [Pixels o pai agora tá de vip](https://peakd.com/hive-169926/@viniciotricolor/46596d6d872903121f6e4a149b82281d-vimmtv)
 - [blood strike](https://peakd.com/hive-169926/@viniciotricolor/ccdc582b62be57522a74916a0d74adf1-vimmtv)
-- [Tracking my result for season 129 : viniciotricolor, vinicio.spt, splinterlandspro, viniciohleo](https://peakd.com/hive-13323/@viniciotricolor/tracking-my-result-for-season-129--viniciotricolor-viniciospt-splinterlandspro-viniciohleo)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
