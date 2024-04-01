@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Blood strike test new map beta](https://peakd.com/hive-169926/@viniciotricolor/a90db7708f672b5bb86a351f01cfc34e-vimmtv)
 - [Blood strike bt: NetEase](https://peakd.com/hive-169926/@viniciotricolor/4e9fd3ed298ac8de07b2e19edbdfa412-vimmtv)
 - [TEST native keyboard-mouse xcloud](https://peakd.com/hive-169926/@viniciotricolor/d40e1f741de21cb448c8de06518eb77e-vimmtv)
 - [blood strike rank lenda top 20 kala sp](https://peakd.com/hive-169926/@viniciotricolor/0a68a8c2dee24f12ada951a6eeeb98d6-vimmtv)
 - [Deixando Nada de Fora: Uma Análise Completa da Season 130 Splinterlands](https://peakd.com/hive-13323/@viniciotricolor/deixando-nada-de-fora-uma-analise-completa-da-season-130-splinterlands)
-- [Top 12 melhor sniper do game rumo ao top 10](https://peakd.com/hive-169926/@viniciotricolor/af14d87c1f0d0f4e1d55801d1391609d-vimmtv)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
