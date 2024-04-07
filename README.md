@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Blood strike bt: NetEase](https://peakd.com/hive-169926/@viniciotricolor/e4fb2ac63df5fcbc368b8d1264d7d6f7-vimmtv)
 - [Feijão é por baixo ou cima ou do lado do arroz?](https://peakd.com/hive-104500/@viniciotricolor/feijao-e-por-baixo-ou-cima-ou-do-lado-do-arroz-1712352213841)
 - [Polls on PeakD.com](https://peakd.com/hive-163399/@peakd/polls-on-peakdcom)
 - [Blood strike test new map beta](https://peakd.com/hive-169926/@viniciotricolor/a90db7708f672b5bb86a351f01cfc34e-vimmtv)
 - [Blood strike bt: NetEase](https://peakd.com/hive-169926/@viniciotricolor/4e9fd3ed298ac8de07b2e19edbdfa412-vimmtv)
-- [TEST native keyboard-mouse xcloud](https://peakd.com/hive-169926/@viniciotricolor/d40e1f741de21cb448c8de06518eb77e-vimmtv)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
