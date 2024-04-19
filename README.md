@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [O jogo é bom o ruim é o time que nao ajuda  blood strike](https://peakd.com/hive-169926/@viniciotricolor/36752793fbb54066a196d26bc8c4a120-vimmtv)
 - [Burn, burn, burn, desgraçados! Queimei todas as minhas cartas, Gladius Tracking my result for season 131](https://peakd.com/hive-13323/@viniciotricolor/burn-burn-burn-desgracados-queimei-todas-as-minhas-cartas-gladius-tracking-my-result-for-season-131)
 - [Splinterlands brawl+pixelsnft+Blood strike by: NetEase](https://peakd.com/hive-169926/@viniciotricolor/27160921831aa03b12ca1a258621ddde-vimmtv)
 - [AriaVPN introduction to the Hive Community](https://peakd.com/introduceyourself/@tunnelvision0/ariavpn-introduction-to-the-hive-community)
 - [Blood strike bt: NetEase](https://peakd.com/hive-169926/@viniciotricolor/e4fb2ac63df5fcbc368b8d1264d7d6f7-vimmtv)
-- [Feijão é por baixo ou cima ou do lado do arroz?](https://peakd.com/hive-104500/@viniciotricolor/feijao-e-por-baixo-ou-cima-ou-do-lado-do-arroz-1712352213841)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
