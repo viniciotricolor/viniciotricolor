@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Open Genie - &quot;Making wishes come true&quot; - May 13th](https://peakd.com/hive-139531/@peak.open/open-genie-making-wishes-come-true-may-13th)
 - [Blood strike](https://peakd.com/hive-169926/@viniciotricolor/ce4fb2813c72951729d257fb883fc4e6-vimmtv)
 - [Blood strike :by netease](https://peakd.com/hive-169926/@viniciotricolor/adbf6edd1764e21a09c55c91cdb28891-vimmtv)
 - [State of decay 2 xcloud mouse/teclado nativo+ splinterlands brawl](https://peakd.com/hive-169926/@viniciotricolor/a9f6b7a01caebf82c1af1d4b7f4a6f0e-vimmtv)
 - [O jogo é bom o ruim é o time que nao ajuda  blood strike](https://peakd.com/hive-169926/@viniciotricolor/36752793fbb54066a196d26bc8c4a120-vimmtv)
-- [Burn, burn, burn, desgraçados! Queimei todas as minhas cartas, Gladius Tracking my result for season 131](https://peakd.com/hive-13323/@viniciotricolor/burn-burn-burn-desgracados-queimei-todas-as-minhas-cartas-gladius-tracking-my-result-for-season-131)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
