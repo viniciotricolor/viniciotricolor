@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [piratenation+ splinterlands brawl](https://peakd.com/hive-169926/@viniciotricolor/65f1bdbe7229bb62cc31a3fa20802d05-vimmtv)
 - [stardew-valley de volta ao vicio](https://peakd.com/hive-169926/@viniciotricolor/9f219bcccbce5afd0c312e95d9ae7760-vimmtv)
 - [Test palworld gforce now u.s.a](https://peakd.com/hive-169926/@viniciotricolor/e628230a94655889860e12f687540b27-vimmtv)
 - [Blood strike treinando e carregando time nas costas](https://peakd.com/hive-169926/@viniciotricolor/7bc9ef2f424f4665786764a3932fa5f8-vimmtv)
 - [Open Genie - &quot;Making wishes come true&quot; - May 13th](https://peakd.com/hive-139531/@peak.open/open-genie-making-wishes-come-true-may-13th)
-- [Blood strike](https://peakd.com/hive-169926/@viniciotricolor/ce4fb2813c72951729d257fb883fc4e6-vimmtv)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
