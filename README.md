@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Tibia day 1](https://peakd.com/hive-169926/@viniciotricolor/cbfd9350f63dda022d53e1b45baf5b06-vimmtv)
 - [TENTANDO JOGAR ESSA MERDA](https://peakd.com/hive-169926/@viniciotricolor/9df9238e7aa68bcca06846ae9c17df51-vimmtv)
 - [piratenation+ splinterlands brawl](https://peakd.com/hive-169926/@viniciotricolor/65f1bdbe7229bb62cc31a3fa20802d05-vimmtv)
 - [stardew-valley de volta ao vicio](https://peakd.com/hive-169926/@viniciotricolor/9f219bcccbce5afd0c312e95d9ae7760-vimmtv)
 - [Test palworld gforce now u.s.a](https://peakd.com/hive-169926/@viniciotricolor/e628230a94655889860e12f687540b27-vimmtv)
-- [Blood strike treinando e carregando time nas costas](https://peakd.com/hive-169926/@viniciotricolor/7bc9ef2f424f4665786764a3932fa5f8-vimmtv)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
