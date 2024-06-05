@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [TIBIA yubra Knight](https://peakd.com/hive-169926/@viniciotricolor/626731568a8d3061d3a2ec80b2c88085-vimmtv)
 - [tibia day 7 estamos perdido](https://peakd.com/hive-169926/@viniciotricolor/072b8a1b6f64b781c98324ea49e6a71e-vimmtv)
 - [Splinterlands Rewards/tournaments+palia+tibia day6](https://peakd.com/hive-169926/@viniciotricolor/dc18bc85f401ff429fc6a5cfead3b3ec-vimmtv)
 - [TIBIA day 5- up skill sword 46/70](https://peakd.com/hive-169926/@viniciotricolor/e32d8a84ea0563c30245a9c4d9ee4b6f-vimmtv)
 - [Tibia day 4](https://peakd.com/hive-169926/@viniciotricolor/972a6c0e9db55bca2003e7a6a47b414e-vimmtv)
-- [No title](https://peakd.com/hive-193084/@viniciotricolor/2gyvu5a5app83r97oy6m50)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
