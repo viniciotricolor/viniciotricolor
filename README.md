@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [tibia evento yubra](https://peakd.com/hive-169926/@viniciotricolor/94b6108a9fbe09103f087de29605c5e8-vimmtv)
 - [OTpokemon mundo black verificando se vale apena voltar a jogar](https://peakd.com/hive-169926/@viniciotricolor/e5601675d3a670f17aca52a0b78a782c-vimmtv)
 - [TIBIA yubra Knight](https://peakd.com/hive-169926/@viniciotricolor/626731568a8d3061d3a2ec80b2c88085-vimmtv)
 - [[PT/EN] Como fazer um Post de Introdução na Hive](https://peakd.com/hive-127515/@hive-br/pten-como-fazer-um-post-de-introduo-na-hive)
 - [tibia day 7 estamos perdido](https://peakd.com/hive-169926/@viniciotricolor/072b8a1b6f64b781c98324ea49e6a71e-vimmtv)
-- [Splinterlands Rewards/tournaments+palia+tibia day6](https://peakd.com/hive-169926/@viniciotricolor/dc18bc85f401ff429fc6a5cfead3b3ec-vimmtv)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
