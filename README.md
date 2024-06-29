@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Tibia  Global server Yubra Elder Druid level 42](https://peakd.com/hive-127022/@viniciotricolor/tibia--global-server-yubra-elder-druid-level-421719692767126)
 - [Tibia Day 31 Global server Yubra Elder Druid level 41](https://peakd.com/hive-127022/@viniciotricolor/tibia-day-31-global-server-yubra-elder-druid-level-411719628985413)
 - [Tibia Day 31 Global server Yubra Elder Druid level 41](https://peakd.com/hive-127022/@viniciotricolor/tibia-day-31-global-server-yubra-elder-druid-level-411719607384908)
 - [tibia evento yubra](https://peakd.com/hive-169926/@viniciotricolor/94b6108a9fbe09103f087de29605c5e8-vimmtv)
 - [OTpokemon mundo black verificando se vale apena voltar a jogar](https://peakd.com/hive-169926/@viniciotricolor/e5601675d3a670f17aca52a0b78a782c-vimmtv)
-- [TIBIA yubra Knight](https://peakd.com/hive-169926/@viniciotricolor/626731568a8d3061d3a2ec80b2c88085-vimmtv)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
