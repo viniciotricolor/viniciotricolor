@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [SUMMER UPDATE  Tibia  Global server Yubra Elder Druid level 44](https://peakd.com/hive-127022/@viniciotricolor/summer-update--tibia--global-server-yubra-elder-druid-level-441719889408803)
 - [SUMMER UPDATE  Tibia  Global server Yubra Elder Druid level 44](https://peakd.com/hive-127022/@viniciotricolor/summer-update--tibia--global-server-yubra-elder-druid-level-441719867808143)
 - [making gold for druid Tibia  Global server Yubra Elder Druid level 42](https://peakd.com/hive-127022/@viniciotricolor/making-gold-for-druid-tibia--global-server-yubra-elder-druid-level-421719801669969)
 - [making gold for druid Tibia  Global server Yubra Elder Druid level 42](https://peakd.com/hive-127022/@viniciotricolor/making-gold-for-druid-tibia--global-server-yubra-elder-druid-level-421719780069435)
 - [Tibia  Global server Yubra Elder Druid level 42](https://peakd.com/hive-127022/@viniciotricolor/tibia--global-server-yubra-elder-druid-level-421719692767126)
-- [Tibia Day 31 Global server Yubra Elder Druid level 41](https://peakd.com/hive-127022/@viniciotricolor/tibia-day-31-global-server-yubra-elder-druid-level-411719628985413)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
