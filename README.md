@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Splinterlands brawl +TIBIA YUBRA ED 61](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-brawl-tibia-yubra-ed-611721421794704)
 - [Tibia Global server Yubra Elder Druid EVENTDouble XP/SKILL](https://peakd.com/hive-127022/@viniciotricolor/tibia-global-server-yubra-elder-druid-eventdouble-xpskill1721077589522)
 - [Tibia Global server Yubra Elder Druid EVENTDouble XP/SKILL](https://peakd.com/hive-127022/@viniciotricolor/tibia-global-server-yubra-elder-druid-eventdouble-xpskill1720837224721)
 - [Tibia Global server Yubra Elder Druid EVENTDouble XP/SKILL](https://peakd.com/hive-127022/@viniciotricolor/tibia-global-server-yubra-elder-druid-eventdouble-xpskill1720815624322)
 - [Tibia Global server Yubra Elder Druid level 54 SUMMER UPDATE](https://peakd.com/hive-127022/@viniciotricolor/tibia-global-server-yubra-elder-druid-level-54-summer-update1720668489080)
-- [splinterlands brawl+ tibia](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-brawl-tibia1720646888593)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
