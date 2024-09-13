@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Tibia finalmente level 100 ed lvl-100 yubra](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1726262702)
+- [Tibia finalmente level 100 ed lvl-100 yubra](https://peakd.com/hive-127022/@viniciotricolor/tibia-finalmente-level-100-ed-lvl100-yubra1726262302559)
 - [Tibia finalmente level 100 ed lvl-100 yubra](https://peakd.com/hive-127022/@viniciotricolor/tibia-finalmente-level-100-ed-lvl100-yubra1726183129213)
 - [[PT-BR/EN] Guia completo da HiveBR: tutoriais, dicas e mais!](https://peakd.com/hive-127515/@hive-br/pt-bren-guia-completo-da-hivebr-tutoriais-dicas-e-mais)
 - [splinterlands+tibia](https://peakd.com/hive-127022/@viniciotricolor/splinterlandstibia1725056968924)
-- [ravenquest](https://peakd.com/hive-127022/@viniciotricolor/ravenquest1724965446260)
-- [TIBIA YUBRA ED 67 Rapid Respawn EVENT](https://peakd.com/hive-127022/@viniciotricolor/tibia-yubra-ed-67-rapid-respawn-event1722631851188)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
