@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [splinterlands brael e dps Tibia   lvl-102 yubra](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1726350303)
+- [splinterlands brael e dps Tibia   lvl-102 yubra](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-brael-e-dps-tibia---lvl102-yubra1726350002751)
 - [Tibia finalmente level 100 ed lvl-100 yubra](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1726262702)
 - [Tibia finalmente level 100 ed lvl-100 yubra](https://peakd.com/hive-127022/@viniciotricolor/tibia-finalmente-level-100-ed-lvl100-yubra1726262302559)
 - [Tibia finalmente level 100 ed lvl-100 yubra](https://peakd.com/hive-127022/@viniciotricolor/tibia-finalmente-level-100-ed-lvl100-yubra1726183129213)
-- [[PT-BR/EN] Guia completo da HiveBR: tutoriais, dicas e mais!](https://peakd.com/hive-127515/@hive-br/pt-bren-guia-completo-da-hivebr-tutoriais-dicas-e-mais)
-- [splinterlands+tibia](https://peakd.com/hive-127022/@viniciotricolor/splinterlandstibia1725056968924)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
