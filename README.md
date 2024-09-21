@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [tibia fazendo merda por ai yubra global](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1726953612)
 - [Splinterlands brawl +tibia](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1726865703)
 - [TIbia Measuring Tibia Quest teste meld studio](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1726622702)
 - [TIbia evento The Colours of Magic- yubra](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1726519502)
 - [TIbia evento The Colours of Magic- yubra](https://peakd.com/hive-127022/@viniciotricolor/tibia-evento-the-colours-of-magic-yubra1726519049760)
-- [TIbia evento The Colours of Magic- yubra](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1726456503)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
