@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [tibia dia de matar os boss guardados+ double loot](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1728096003)
 - [tibia dia de matar os boss guardados+ double loot](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1728074103)
 - [tibia caguei na prey loot 10 estrela Novices Of The Cult+ Boosted Creature](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1727990102)
 - [tibinha de lei](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1727739603)
 - [tibia global ed 108 yubra](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1727555403)
-- [tibia global bora morrer na warzone](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1727472304)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
