@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Tibia ED mais nob de yubra](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1729216503)
 - [splinterlands+ tibia](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1729194603)
 - [tibia to preso](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1728683103)
 - [tibia nosso de cada dia, o que nos vai dar hoje](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1728354303)
 - [tibia nosso de cada dia, o que nos vai dar hoje](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1728332403)
-- [tibia dia de matar os boss guardados+ double loot](https://peakd.com/hive-169926/@viniciotricolor/twitch-stream-viniciotricolor-1728096003)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
