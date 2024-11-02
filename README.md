@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Tíbia global yubra](https://peakd.com/hive-127022/@viniciotricolor/tbia-global-yubra1730518326009)
 - [Tíbia global yubra](https://peakd.com/hive-127022/@viniciotricolor/tbia-global-yubra1730496717799)
 - [Tíbia global yubra](https://peakd.com/hive-127022/@viniciotricolor/tbia-global-yubra1730426611562)
 - [splinterlands brawl](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-brawl1730404996961)
 - [Tibia ed 129 yubra S/A](https://peakd.com/hive-127022/@viniciotricolor/tibia-ed-129-yubra-sa1730342034423)
-- [Tibia ed 129 yubra S/A](https://peakd.com/hive-127022/@viniciotricolor/tibia-ed-129-yubra-sa1730320426984)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
