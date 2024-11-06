@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Como me tornei uma abelha da Hive // That&#39;s how I became a Hive bee!!  &lpar;EN/PT-BR&rpar;](https://peakd.com/hive-127515/@jarmeson/como-me-tornei-uma-abelha-da-hive-thats-how-i-became-a-hive-bee-enpt-br)
 - [Tíbia global yubra](https://peakd.com/hive-127022/@viniciotricolor/tbia-global-yubra1730771831571)
 - [Tíbia global yubra](https://peakd.com/hive-127022/@viniciotricolor/tbia-global-yubra1730750212223)
 - [Tíbia global yubra](https://peakd.com/hive-127022/@viniciotricolor/tbia-global-yubra1730518326009)
 - [Tíbia global yubra](https://peakd.com/hive-127022/@viniciotricolor/tbia-global-yubra1730496717799)
-- [Tíbia global yubra](https://peakd.com/hive-127022/@viniciotricolor/tbia-global-yubra1730426611562)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
