@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Tibia hoje promettto nao morrer](https://peakd.com/hive-127022/@viniciotricolor/tibia-hoje-promettto-nao-morrer1731121498694)
 - [Tibia hoje promettto nao morrer](https://peakd.com/hive-127022/@viniciotricolor/tibia-hoje-promettto-nao-morrer1731099882547)
 - [Tibia 132: Seeking the Stampor Mount](https://peakd.com/hive-127022/@viniciotricolor/tibia-132-seeking-the-stampor-mount1730928714446)
 - [Como me tornei uma abelha da Hive // That&#39;s how I became a Hive bee!!  &lpar;EN/PT-BR&rpar;](https://peakd.com/hive-127515/@jarmeson/como-me-tornei-uma-abelha-da-hive-thats-how-i-became-a-hive-bee-enpt-br)
 - [Tíbia global yubra](https://peakd.com/hive-127022/@viniciotricolor/tbia-global-yubra1730771831571)
-- [Tíbia global yubra](https://peakd.com/hive-127022/@viniciotricolor/tbia-global-yubra1730750212223)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
