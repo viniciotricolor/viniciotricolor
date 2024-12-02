@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [é o tal do tibinha em yubra](https://peakd.com/hive-127022/@viniciotricolor/-o-tal-do-tibinha-em-yubra1733178921359)
 - [Exploring All the News from Tibia&#39;s Winter Update 2024 LIVE! 🚀](https://peakd.com/hive-127022/@viniciotricolor/exploring-all-the-news-from-tibias-winter-update-2024-live-1732563028200)
 - [tibia 140 yubra](https://peakd.com/hive-127022/@viniciotricolor/tibia-140-yubra1732221760653)
 - [splinterlands+tibia](https://peakd.com/hive-127022/@viniciotricolor/splinterlandstibia1731873632141)
 - [I visited Królestwo Bez Kresu &amp; paid Hive Dollars &amp; here is my review](https://peakd.com/hive-106130/@grawitacja/hvjykrvt)
-- [Tibia hoje promettto nao morrer](https://peakd.com/hive-127022/@viniciotricolor/tibia-hoje-promettto-nao-morrer1731121498694)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
