@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Tibia Christmas events](https://peakd.com/hive-127022/@viniciotricolor/tibia-christmas-events1734042221925)
 - [Tibia Rapid Respawn Weekend fechado bestiarios](https://peakd.com/hive-127022/@viniciotricolor/tibia-rapid-respawn-weekend-fechado-bestiarios1733603287743)
 - [Tibia Rapid Respawn Weekend](https://peakd.com/hive-127022/@viniciotricolor/tibia-rapid-respawn-weekend1733520476425)
 - [é o tal do tibinha em yubra](https://peakd.com/hive-127022/@viniciotricolor/-o-tal-do-tibinha-em-yubra1733178921359)
 - [Exploring All the News from Tibia&#39;s Winter Update 2024 LIVE! 🚀](https://peakd.com/hive-127022/@viniciotricolor/exploring-all-the-news-from-tibias-winter-update-2024-live-1732563028200)
-- [tibia 140 yubra](https://peakd.com/hive-127022/@viniciotricolor/tibia-140-yubra1732221760653)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
