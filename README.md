@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [ProjectZomboid b42 test](https://peakd.com/hive-127022/@viniciotricolor/projectzomboid-b42-test1734471349405)
 - [ai test peakd.com/ai](https://peakd.com/ai/@viniciotricolor/ai-test-peakdcomai)
 - [Atualização Automática TrackTV](https://peakd.com/tracktv/@viniciotricolor/tracktv-update-1734219000951)
 - [Atualização Automática TrackTV](https://peakd.com/tracktv/@viniciotricolor/tracktv-update-1734218101283)
 - [Tibia Christmas events](https://peakd.com/hive-127022/@viniciotricolor/tibia-christmas-events1734042221925)
-- [Tibia Rapid Respawn Weekend fechado bestiarios](https://peakd.com/hive-127022/@viniciotricolor/tibia-rapid-respawn-weekend-fechado-bestiarios1733603287743)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
