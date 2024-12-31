@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [testando e escolhendo um poketibia para jogar](https://peakd.com/hive-127022/@viniciotricolor/testando-e-escolhendo-um-poketibia-para-jogar1735607199992)
 - [tibia doble xp event hoje pego level 200 sqm](https://peakd.com/hive-127022/@viniciotricolor/tibia-doble-xp-event-hoje-pego-level-200-sqm1734986998656)
 - [ProjectZomboid b42 test](https://peakd.com/hive-127022/@viniciotricolor/projectzomboid-b42-test1734471349405)
 - [ai test peakd.com/ai](https://peakd.com/ai/@viniciotricolor/ai-test-peakdcomai)
 - [Atualização Automática TrackTV](https://peakd.com/tracktv/@viniciotricolor/tracktv-update-1734219000951)
-- [Atualização Automática TrackTV](https://peakd.com/tracktv/@viniciotricolor/tracktv-update-1734218101283)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
