@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Parkitect meu novo vicio](https://peakd.com/hive-127022/@viniciotricolor/parkitect-meu-novo-vicio1736020088849)
 - [Parkitect](https://peakd.com/hive-127022/@viniciotricolor/parkitect1735870782454)
 - [sutura o jogo- project hospital](https://peakd.com/hive-127022/@viniciotricolor/sutura-o-jogo-project-hospital1735849154954)
 - [RollerCoaster Tycoon](https://peakd.com/hive-127022/@viniciotricolor/rollercoaster-tycoon1735777271999)
 - [Expeditions: A MudRunner Game](https://peakd.com/hive-127022/@viniciotricolor/expeditions-a-mudrunner-game1735686405160)
-- [testando e escolhendo um poketibia para jogar](https://peakd.com/hive-127022/@viniciotricolor/testando-e-escolhendo-um-poketibia-para-jogar1735607199992)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
