@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [the hunter classic uma volta ao passado de 2012](https://peakd.com/hive-127022/@viniciotricolor/the-hunter-classic-uma-volta-ao-passado-de-20121736457665290)
 - [tibinha](https://peakd.com/hive-127022/@viniciotricolor/tibinha1736372607893)
 - [Parkitect meu novo vicio](https://peakd.com/hive-127022/@viniciotricolor/parkitect-meu-novo-vicio1736020088849)
 - [Parkitect](https://peakd.com/hive-127022/@viniciotricolor/parkitect1735870782454)
 - [sutura o jogo- project hospital](https://peakd.com/hive-127022/@viniciotricolor/sutura-o-jogo-project-hospital1735849154954)
-- [RollerCoaster Tycoon](https://peakd.com/hive-127022/@viniciotricolor/rollercoaster-tycoon1735777271999)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
