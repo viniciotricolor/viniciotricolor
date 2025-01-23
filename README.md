@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [splinterlands  brawl](https://peakd.com/hive-127022/@viniciotricolor/splinterlands--brawl1737665060172)
 - [Proposta #13 - Criação de uma enquete sobre o status da HiveBR como uma comunidade descentralizada ou centralizada](https://peakd.com/hive-127515/@hive-br/proposta-13-criacao-de-uma-enquete-sobre-o-status-da-hivebr-como-uma-comunidade-descentralizada-ou-centralizada)
 - [microsoft flight simulator 2024 xcloud test](https://peakd.com/hive-127022/@viniciotricolor/microsoft-flight-simulator-2024-xcloud-test1736801982410)
 - [the hunter classic uma volta ao passado de 2012](https://peakd.com/hive-127022/@viniciotricolor/the-hunter-classic-uma-volta-ao-passado-de-20121736457665290)
 - [tibinha](https://peakd.com/hive-127022/@viniciotricolor/tibinha1736372607893)
-- [Parkitect meu novo vicio](https://peakd.com/hive-127022/@viniciotricolor/parkitect-meu-novo-vicio1736020088849)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
