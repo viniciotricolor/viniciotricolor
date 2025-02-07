@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [rift-of-the-necrodancer](https://peakd.com/hive-127022/@viniciotricolor/riftofthenecrodancer1738885113367)
 - [ea sportS 24 xcloud chama no X1 !!!!!](https://peakd.com/hive-127022/@viniciotricolor/ea-sports-24-xcloud-chama-no-x1-1738185900911)
 - [gran turismo ps1-  retroachievements](https://peakd.com/hive-127022/@viniciotricolor/gran-turismo-ps1--retroachievements1737861880118)
 - [gran turismo ps1-  retroachievements](https://peakd.com/hive-127022/@viniciotricolor/gran-turismo-ps1--retroachievements1737840253034)
 - [splinterlands  brawl](https://peakd.com/hive-127022/@viniciotricolor/splinterlands--brawl1737665060172)
-- [Proposta #13 - Criação de uma enquete sobre o status da HiveBR como uma comunidade descentralizada ou centralizada](https://peakd.com/hive-127515/@hive-br/proposta-13-criacao-de-uma-enquete-sobre-o-status-da-hivebr-como-uma-comunidade-descentralizada-ou-centralizada)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
