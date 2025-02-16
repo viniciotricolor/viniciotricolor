@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [subindo de liga no soulkeep e aprendendo sobre o game](https://peakd.com/hive-127022/@viniciotricolor/subindo-de-liga-no-soulkeep-e-aprendendo-sobre-o-game1739737620042)
 - [MudRunner](https://peakd.com/hive-127022/@viniciotricolor/mudrunner1739148405708)
 - [gta san andreas ate zerar ps2 retroachievements](https://peakd.com/hive-127022/@viniciotricolor/gta-san-andreas-ate-zerar-ps2-retroachievements1739063228994)
 - [rift-of-the-necrodancer](https://peakd.com/hive-127022/@viniciotricolor/riftofthenecrodancer1738885113367)
 - [ea sportS 24 xcloud chama no X1 !!!!!](https://peakd.com/hive-127022/@viniciotricolor/ea-sports-24-xcloud-chama-no-x1-1738185900911)
-- [gran turismo ps1-  retroachievements](https://peakd.com/hive-127022/@viniciotricolor/gran-turismo-ps1--retroachievements1737861880118)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
