@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [splinterlands brawls tibia yubra s.a](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-brawls-tibia-yubra-sa1739998457707)
 - [tibia yubra s.a](https://peakd.com/hive-127022/@viniciotricolor/tibia-yubra-sa1739914313012)
 - [subindo de liga no soulkeep e aprendendo sobre o game](https://peakd.com/hive-127022/@viniciotricolor/subindo-de-liga-no-soulkeep-e-aprendendo-sobre-o-game1739737620042)
 - [MudRunner](https://peakd.com/hive-127022/@viniciotricolor/mudrunner1739148405708)
 - [gta san andreas ate zerar ps2 retroachievements](https://peakd.com/hive-127022/@viniciotricolor/gta-san-andreas-ate-zerar-ps2-retroachievements1739063228994)
-- [rift-of-the-necrodancer](https://peakd.com/hive-127022/@viniciotricolor/riftofthenecrodancer1738885113367)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
