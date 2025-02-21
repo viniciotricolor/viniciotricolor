@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [tibia A Piece of Cake event](https://peakd.com/hive-127022/@viniciotricolor/tibia-a-piece-of-cake-event1740170696945)
 - [splinterlands brawls tibia yubra s.a](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-brawls-tibia-yubra-sa1739998457707)
 - [tibia yubra s.a](https://peakd.com/hive-127022/@viniciotricolor/tibia-yubra-sa1739914313012)
 - [subindo de liga no soulkeep e aprendendo sobre o game](https://peakd.com/hive-127022/@viniciotricolor/subindo-de-liga-no-soulkeep-e-aprendendo-sobre-o-game1739737620042)
 - [MudRunner](https://peakd.com/hive-127022/@viniciotricolor/mudrunner1739148405708)
-- [gta san andreas ate zerar ps2 retroachievements](https://peakd.com/hive-127022/@viniciotricolor/gta-san-andreas-ate-zerar-ps2-retroachievements1739063228994)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
