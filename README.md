@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [How to prepare for Survival Mode](https://peakd.com/hive-13323/@beaker007/how-to-prepare-for-survival-mode)
 - [tibia yubra poi+inq evento do bolo](https://peakd.com/hive-127022/@viniciotricolor/tibia-yubra-poiinq-evento-do-bolo1740354241699)
 - [tibia yubra poi+inq evento do bolo](https://peakd.com/hive-127022/@viniciotricolor/tibia-yubra-poiinq-evento-do-bolo1740332616137)
 - [Nova Ferramenta Pix Pay](https://peakd.com/hive-127515/@pixbee/nova-ferramenta-pix-pay)
 - [tibia A Piece of Cake event](https://peakd.com/hive-127022/@viniciotricolor/tibia-a-piece-of-cake-event1740170696945)
-- [splinterlands brawls tibia yubra s.a](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-brawls-tibia-yubra-sa1739998457707)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
