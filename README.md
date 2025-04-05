@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Tibia yubra ED 200](https://peakd.com/hive-127022/@viniciotricolor/tibia-yubra-ed-2001743889585450)
 - [Tibia yubra wote quet final service](https://peakd.com/hive-127022/@viniciotricolor/tibia-yubra-wote-quet-final-service1742059749696)
 - [Tibia yubra em busca dos 300 pontos Oramond](https://peakd.com/hive-127022/@viniciotricolor/tibia-yubra-em-busca-dos-300-pontos-oramond1741728488379)
 - [splinterlands brawls e depois tibia](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-brawls-e-depois-tibia1740968075476)
 - [splinterlands brawls e depois tibia](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-brawls-e-depois-tibia1740946462896)
-- [How to prepare for Survival Mode](https://peakd.com/hive-13323/@beaker007/how-to-prepare-for-survival-mode)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
