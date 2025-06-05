@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [splinterlands brawl +Tibia](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-brawl-tibia1749161355820)
 - [splinterlands brawl +Tibia inq](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-brawl-tibia-inq1748197634162)
 - [Tibia em busca do 250- yubra](https://peakd.com/hive-127022/@viniciotricolor/tibia-em-busca-do-250-yubra1747773637891)
 - [Tibia em busca do 250- yubra](https://peakd.com/hive-127022/@viniciotricolor/tibia-em-busca-do-250-yubra1747706237331)
 - [Tibia em busca do 250- yubra](https://peakd.com/hive-127022/@viniciotricolor/tibia-em-busca-do-250-yubra1747684580682)
-- [Tibia evento Demon&#39;s Lullaby yubra](https://peakd.com/hive-127022/@viniciotricolor/tibia-evento-demons-lullaby-yubra1746651419351)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
