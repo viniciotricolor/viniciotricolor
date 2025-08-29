@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Splinterlands –brawl](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-brawl1756424178532)
 - [fortnite e a  colab  que faltava Gorillaz](https://peakd.com/hive-127022/@viniciotricolor/fortnite-e-a--colab--que-faltava-gorillaz1756251246642)
 - [Tibia Rapid Respawn Events+Hot Cuisine Month](https://peakd.com/hive-127022/@viniciotricolor/tibia-rapid-respawn-eventshot-cuisine-month1754090843902)
 - [Tibia  nosso de cada dia nos dai hoje](https://peakd.com/hive-127022/@viniciotricolor/tibia--nosso-de-cada-dia-nos-dai-hoje1753500949173)
 - [Tibia  nosso de cada dia nos dai hoje](https://peakd.com/hive-127022/@viniciotricolor/tibia--nosso-de-cada-dia-nos-dai-hoje1752700791313)
-- [Tibia Rapid Respawn- só bestiários de gostos duvidosos](https://peakd.com/hive-127022/@viniciotricolor/tibia-rapid-respawn-s-bestirios-de-gostos-duvidosos1749243495430)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
