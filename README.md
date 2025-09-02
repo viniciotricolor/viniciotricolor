@@ -10,10 +10,10 @@
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
 - [Splinterlands: brawl](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-brawl1756775957580)
+- [Delegation Giveaways are HERE &lpar;+10 $TRENDZ token giveaway&rpar;](https://peakd.com/hive-13323/@splintertrends/delegation-giveaways-are-here-10-trendz-token-giveaway-6zk)
 - [Splinterlands: checking final season reward](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-checking-final-season-reward1756688227549)
 - [Splinterlands –brawl](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-brawl1756424178532)
 - [Unboxing a 2019 Splinterlands Kickstarter Pack!!! - My Most Memorable Splinterlands Experience](https://peakd.com/hive-13323/@algoswithamber/unboxing-a-2019-splinterlands-kickstarter-pack-my-most-memorable-splinterlands-experience)
-- [fortnite e a  colab  que faltava Gorillaz](https://peakd.com/hive-127022/@viniciotricolor/fortnite-e-a--colab--que-faltava-gorillaz1756251246642)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
