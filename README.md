@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [tibinha+splinterlands brawl](https://peakd.com/hive-127022/@viniciotricolor/tibinhasplinterlands-brawl1757716047979)
 - [🧛 Vampire Survivors – Hunting for New Characters 🔎✨](https://peakd.com/hive-127022/@viniciotricolor/-vampire-survivors--hunting-for-new-characters-1757206772032)
 - [splinterlands🕷️ Darkness Challenge: 50 Matches Using Only Death 🌑](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-darkness-challenge-50-matches-using-only-death-1757120362610)
 - [Splinterlands: brawl](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-brawl1756775957580)
 - [Delegation Giveaways are HERE &lpar;+10 $TRENDZ token giveaway&rpar;](https://peakd.com/hive-13323/@splintertrends/delegation-giveaways-are-here-10-trendz-token-giveaway-6zk)
-- [Splinterlands: checking final season reward](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-checking-final-season-reward1756688227549)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
