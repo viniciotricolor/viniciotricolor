@@ -9,11 +9,11 @@
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
+- [Exploring Road Craft for the First Time! xcloud net/claro 750 megas](https://peakd.com/hive-127022/@viniciotricolor/exploring-road-craft-for-the-first-time-xcloud-netclaro-750-megas1757989104180)
 - [Snowrunner gforce now-usa net/claro 750 megas é hoje que termino esse mapa](https://peakd.com/hive-127022/@viniciotricolor/snowrunner-gforce-nowusa-netclaro-750-megas--hoje-que-termino-esse-mapa1757813098650)
 - [CMark Editor - the Tool you always wanted!](https://peakd.com/hive-186392/@ecoinstant/cmark-editor-the-tool-you-always-wanted)
 - [tibinha+splinterlands brawl](https://peakd.com/hive-127022/@viniciotricolor/tibinhasplinterlands-brawl1757716047979)
 - [🧛 Vampire Survivors – Hunting for New Characters 🔎✨](https://peakd.com/hive-127022/@viniciotricolor/-vampire-survivors--hunting-for-new-characters-1757206772032)
-- [splinterlands🕷️ Darkness Challenge: 50 Matches Using Only Death 🌑](https://peakd.com/hive-127022/@viniciotricolor/splinterlands-darkness-challenge-50-matches-using-only-death-1757120362610)
 <!-- BLOG-POST-LIST:END -->
 
 <h3 align="left">Connect with me:</h3>
